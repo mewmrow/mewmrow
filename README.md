@@ -1,4 +1,4 @@
 
 ## а чё
-![counter](https://moe-counter.glitch.me/get/@dkms1337?theme=asoul)
+![counter](https://count.getloli.com/get/@mewmrow?theme=booru-qualityhentais)
 
